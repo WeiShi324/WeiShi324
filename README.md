@@ -1,4 +1,4 @@
-# An Investment Professional Equipped with Coding Skills 😃
+# A Chartered Investment Professional Equipped with Coding Skills 😃
 *Hello there! 😊 Here is a brief introduction of me:*
 
 - 🔭 I’m currently working at a fast growing start-up investment management company
